@@ -1,2 +1,2 @@
 # EXCLUSIVE
-Ramya wants to be a Teacher.
+Ramya wants to be a lawyer.
